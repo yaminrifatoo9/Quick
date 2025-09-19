@@ -1,2 +1,2 @@
 # Quick
-k
+https://yaminrifatoo9.github.io/Quick/
